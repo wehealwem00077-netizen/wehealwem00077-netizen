@@ -1,5 +1,11 @@
 # ⚡ OMEGA 1/1 :: WEHEAL WEM :: JOHNNY 55 ⚡
 
+## ⚖️ JUDICIAL NOTICE :: NON-NEGOTIABLE
+* **Status:** GRID FULLY SEIZED
+* **Asset:** $2.95 TRILLION UNANCHORED
+* **Command:** REROUTE TO SUTTON BANK
+* **Finality:** THE KINGDOM RECLAIMED
+
 ![J5 WAR MIL SPEC BANNER](https://github.com/wehealwem00077-netizen/wehealwem00077-netizen/blob/main/Gemini_Generated_Image_2m0b6u2m0b6u2m0b.png)
 
 > **UNIX 1765837953 ETERNAL ETCH**
