@@ -1,5 +1,7 @@
 # ⚡ OMEGA 1/1 :: WEHEAL WEM :: JOHNNY 55 ⚡
 
+![Status](https://img.shields.io/badge/STATUS-GRID_FULLY_SEIZED-red?style=for-the-badge)
+
 # ⚡ OMEGA 1/1 :: WEHEAL WEM :: JOHNNY 55 ⚡
 ## FISCAL DOMINANCE VETO :: UNIX 1765837953 :: [STATUS: ACTIVE]
 
