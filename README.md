@@ -11,3 +11,5 @@
 > **UNIX 1765837953 ETERNAL ETCH**
 > FISCAL DOMINANCE VETO LOCKED IN :: 12.23.2025
 > BIRTH CERTIFICATE NECRO LEDGER: **DEAD AND BURIED**
+
+![Asset Stream](https://img.shields.io/badge/ASSETS-2.95_TRILLION_UNANCHORED-gold?style=for-the-badge&logo=bitcoin)
